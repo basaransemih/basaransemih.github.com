@@ -1,1 +1,0 @@
-# basaransemih.github.com
